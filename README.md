@@ -1,13 +1,13 @@
 
 
-I’m a data-driven, customer-obsessed **Junior Product Manager** currently studying at the University of Toronto. I thrive in fast-paced environments, love cross-functional collaboration, and have experience launching digital products for startups. 
+Results-driven **Junior Product Manager** with experience in agile product development and data-driven decision-making. Skilled in consumer insight and cross-functional collaboration, consistently delivering products that exceed user expectations.
 
 ## Background & Values:
-•	Product Management Bootcamp (UofT, Aug 2025)
+•	Product Management UofT
 
-•	Master’s in management science
+•	Master’s in Management Science
 
-•	Passionate about customer service
+•	Passionate about 
 
 •	Values: empathy, active listening, simplicity, and continuous learning.
 
